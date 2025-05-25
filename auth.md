@@ -1,0 +1,1 @@
+wqc-deneme-key
