@@ -1,1 +1,1 @@
-wqc-deneme-key
+WQC-LIFETIME-KEY-LCGP68OGCAI4928
